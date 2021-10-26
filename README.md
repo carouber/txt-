@@ -1,4 +1,4 @@
-Publicado em 1937, pouco depois de implantado o Estado Novo,
+Publicado em 1937, pouco depois de implantado o Estado Novo,
 este livro teve a primeira edição apreendida e exemplares
 queimados em praça pública de Salvador por autoridades da
 ditadura. Em 1940, marcou época na vida literária brasileira, com
@@ -7,7 +7,7 @@ idiomas estrangeiros. A obra teve também adaptações para o rádio,
 teatro e cinema. Documento sobre a vida dos meninos
 abandonados nas ruas de Salvador, Jorge Amado a descreve em
 páginas carregadas de beleza, dramaticidade e lirismo.
-                                          Matilde:
+                                          Matilde:
 
                       Jogávamos jogos de prenda. Andávamos de carro de
                                                                     boi.
@@ -21,7 +21,7 @@ páginas carregadas de beleza, dramaticidade e lirismo.
 
 Para Aydano do Couto Ferras, José Olympio, José Américo de Almeida, João
               Nascimento Filho e para Anísio Teixeira, amigo das crianças.
-CRIANÇAS LADRONAS
+CRIANÇAS LADRONAS
 
 
 
@@ -53,13 +53,13 @@ graves, praticado na tarde de ontem. Infelizmente a Identidade deste chefe é
 desconhecida.
 
 O que se faz necessário é uma urgente providência da policia e do juizado de
-menores no sentido da extinção desse bando e para que recolham esses precoces
+menores no sentido da extinção desse bando e para que recolham esses precoces
 criminosos, que já não deixam a cidade dormir em paz o seu sono tão merecido,
 aos Institutos de reforma de crianças ou às prisões. Passemos agora a relatar o
 assalto de ontem, do qual foi vítima um honrado comerciante da nossa praça, que
 teve sua residência furtada em mais de um conto de réis e um seu empregado
 ferido pelo desalmado chefe dessa malta de jovens bandidos.
-NA RESIDÊNCIA DO COMENDADOR JOSE
+NA RESIDÊNCIA DO COMENDADOR JOSE
 FERREIRA
 
 
@@ -90,7 +90,7 @@ curiosa de Ramiro, fugiam saltando as janelas, carregados com objetos de valor
 da sala de jantar. A empregada que havia gritado estava cuidando da senhora do
 comendador, que tivera um ligeiro desmaio em virtude do susto que passara. O
 Jardineiro dirigiu-se às pressas para o jardim, onde teve lugar a
-LUTA
+LUTA
 
 
 Aconteceu que no jardim a linda criança que é Raul Ferreira, de 11 anos, neto do
@@ -121,7 +121,7 @@ Areia”. Urge uma providência que traga para semelhantes malandros um justo
 castigo e o sossego para as nossas mais distintas famílias. Esperamos que o ilustre
 chefe de polícia e o não menos ilustre doutor Juiz de Menores saberão tomar as
 devidas providências contra esses criminosos tão Jovens e já tão ousados.
-A OPINIÃO DA INOCÊNCIA
+A OPINIÃO DA INOCÊNCIA
 
 
 
